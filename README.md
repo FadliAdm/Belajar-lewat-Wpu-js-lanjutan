@@ -1,1 +1,1 @@
-Cuma lagi belajar hehehehe 
+Belajar membuat aplikasi web tentang informasi tentang film film bioskop by wpu mengunakan jQuery dan bootstap dengan simple dan keren kalian bisa coba salam sehat sehat yang baca 😂 dari Fadli Adam Malik heheh
