@@ -1,0 +1,1 @@
+Cuma lagi belajar hehehehe 
